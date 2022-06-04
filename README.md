@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cryptosage
+- 👋 Hi, I’m @cryptosagee
 - 👀 I’m interested in Defi, NFTs, and the Metaverse
 - 🌱 I’m currently learning FinTech: Foundations, Payments, and Regulations on Coursera
 - 💞️ I’m looking to collaborate on Defi, NFT, and Metaverse projects
